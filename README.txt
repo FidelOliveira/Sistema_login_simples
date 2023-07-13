@@ -1,0 +1,1 @@
+Lembrar de posteriormente complementar o presente código e os demais com os conhecimentos obtidos durante o caminho das pedras
